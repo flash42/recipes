@@ -3,7 +3,7 @@
 ## vitamix
 
 ### 1. Glowing green smoothie
-[Vitamix Site]([url](https://www.vitamix.com/us/en_us/recipes/glowing-green-smoothie))
+[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/glowing-green-smoothie)
 
 **Ingredients**
 
@@ -23,7 +23,7 @@
 3. Blend for 45 seconds or until smooth, using the tamper as needed.
 
 ### 2. Orange Juice Plus
-[Vitamix Site]([url](https://www.vitamix.com/us/en_us/recipes/orange-juice-plus))
+[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/orange-juice-plus)
 
 **Ingredients**
 - ¼ cup (60 ml) water
@@ -38,7 +38,7 @@
 3. Blend for 1 minute or until desired consistency is reached. Serve immediately.
 
 ### 3. Guacamole
-[Vitamix Site]([url](https://www.vitamix.com/us/en_us/recipes/guacamole))
+[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/guacamole)
 
 **Ingredients**
 
