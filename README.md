@@ -54,3 +54,23 @@
 1. With a peeler or paring knife, remove the peel and white pith from the fruit, leaving just the flesh.
 2. Place all ingredients into the Vitamix container in the order listed and secure the lid.
 3. Start the blender on its lowest speed, then quickly increase to Variable 4-8 depending on desired consistency, using the tamper to press ingredients toward the blades. Blend for 15-20 seconds.
+
+### 3. Guacamole
+[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/going-green-smoothie)
+
+**Ingredients**
+
+- 1 cup (120 ml) water
+- 1 cup (170 g) green grapes
+- ½ cup (85 g) pineapple
+- ½ banana peeled
+- 2 cups (60 g) fresh spinach
+- ½ cup (70 g) ice cubes
+
+**Directions**
+
+1. Place all ingredients into the Vitamix container in the order listed and secure lid.
+2. Select Variable 1.
+3. Turn machine on and slowly increase speed to Variable 10, then to High.
+4. Blend for 45 seconds or until desired consistency is reached. Serve immediately.
+
