@@ -74,3 +74,21 @@
 3. Turn machine on and slowly increase speed to Variable 10, then to High.
 4. Blend for 45 seconds or until desired consistency is reached. Serve immediately.
 
+### 5. Oat milk
+[Website](https://www.loveandlemons.com/oat-milk/)
+
+**Ingredients**
+
+- 709.76 ml water
+- 40.5 g old fashioned rolled oats (certified gluten-free, if needed)
+- 7 g maple syrup
+- ½ teaspoon vanilla extract
+- pinch of salt
+
+**Directions**
+
+1. Add the water, oats, maple syrup, vanilla, and salt to a high-speed blender and blend briefly, about 20 to 30 seconds, until the mixture looks creamy. Do NOT over-blend, as this will make the consistency more slimy.
+2. Pour the blended mixture through a fine-mesh strainer, and tap the sides of the strainer to make sure the liquid strains through. (Don't use a spoon to press the pulp into the sides of the strainer, or the resulting milk will be slimy. This is also why you also don't want to squeeze through a nut milk bag for straining.)
+3. For an extra-smooth milk, rinse off the strainer and then pour the milk through it a second time. This will strain out any extra sediment for an super-smooth oat milk.
+4. Use the milk right away, or store it in an airtight container in the fridge for up to 4 days. This homemade milk will separate when stored, so shake it again before using. 
+
