@@ -55,7 +55,7 @@
 2. Place all ingredients into the Vitamix container in the order listed and secure the lid.
 3. Start the blender on its lowest speed, then quickly increase to Variable 4-8 depending on desired consistency, using the tamper to press ingredients toward the blades. Blend for 15-20 seconds.
 
-### 3. Going Green Smoothie
+### 4. Going Green Smoothie
 [Vitamix Site](https://www.vitamix.com/us/en_us/recipes/going-green-smoothie)
 
 **Ingredients**
