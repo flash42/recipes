@@ -3,7 +3,7 @@
 ## vitamix
 
 ### 1. Glowing green smoothie
-[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/glowing-green-smoothie)
+[Website](https://www.vitamix.com/us/en_us/recipes/glowing-green-smoothie)
 
 **Ingredients**
 
@@ -23,7 +23,7 @@
 3. Blend for 45 seconds or until smooth, using the tamper as needed.
 
 ### 2. Orange Juice Plus
-[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/orange-juice-plus)
+[Website](https://www.vitamix.com/us/en_us/recipes/orange-juice-plus)
 
 **Ingredients**
 - ¼ cup (60 ml) water
@@ -38,7 +38,7 @@
 3. Blend for 1 minute or until desired consistency is reached. Serve immediately.
 
 ### 3. Guacamole
-[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/guacamole)
+[Website](https://www.vitamix.com/us/en_us/recipes/guacamole)
 
 **Ingredients**
 
@@ -56,7 +56,7 @@
 3. Start the blender on its lowest speed, then quickly increase to Variable 4-8 depending on desired consistency, using the tamper to press ingredients toward the blades. Blend for 15-20 seconds.
 
 ### 4. Going Green Smoothie
-[Vitamix Site](https://www.vitamix.com/us/en_us/recipes/going-green-smoothie)
+[Website](https://www.vitamix.com/us/en_us/recipes/going-green-smoothie)
 
 **Ingredients**
 
@@ -90,5 +90,29 @@
 1. Add the water, oats, maple syrup, vanilla, and salt to a high-speed blender and blend briefly, about 20 to 30 seconds, until the mixture looks creamy. Do NOT over-blend, as this will make the consistency more slimy.
 2. Pour the blended mixture through a fine-mesh strainer, and tap the sides of the strainer to make sure the liquid strains through. (Don't use a spoon to press the pulp into the sides of the strainer, or the resulting milk will be slimy. This is also why you also don't want to squeeze through a nut milk bag for straining.)
 3. For an extra-smooth milk, rinse off the strainer and then pour the milk through it a second time. This will strain out any extra sediment for an super-smooth oat milk.
-4. Use the milk right away, or store it in an airtight container in the fridge for up to 4 days. This homemade milk will separate when stored, so shake it again before using. 
+4. Use the milk right away, or store it in an airtight container in the fridge for up to 4 days. This homemade milk will separate when stored, so shake it again before using.
+
+### 5. Oat milk
+[Website](https://www.vitamix.com/us/en_us/recipes/avocado-chocolate-mousse)
+#### Ingredients
+
+* 1 avocado, pitted, peeled
+
+* 1 cup (240 ml) [almond milk](https://www.vitamix.com/us/en_us/recipes/almond-milk)
+
+* ¾ cup (100 g) dates, pitted
+
+* ½ cup (40 g) cacao powder
+
+* 2 Tablespoons (30 ml) coconut butter
+
+#### Directions
+
+1. Place all ingredients into the Vitamix container in the order listed and secure the lid.
+
+2. Start the blender on its lowest speed, then quickly increase to its highest speed. Blend for 30 to 45 seconds, using the tamper to press ingredients toward the blade. Chill and serve.
+
+
+
+
 
