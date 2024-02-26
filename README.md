@@ -171,6 +171,7 @@ https://wholefully.com/orange-smoothie-recipe-creamsicle/
 1. Place all ingredients into the Vitamix container in the order listed and secure the lid.
 2. Start the blender on its lowest speed, then quickly increase to its highest speed. Blend for 1 minute
 
-## Soups
+## Noodles
 
 ### 1. Thai soba noodles with prawns
+https://kitchenconfidante.com/soba-noodles-chicken-with-spicy-peanut-sauce-recipe
