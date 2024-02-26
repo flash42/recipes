@@ -92,8 +92,9 @@
 3. For an extra-smooth milk, rinse off the strainer and then pour the milk through it a second time. This will strain out any extra sediment for an super-smooth oat milk.
 4. Use the milk right away, or store it in an airtight container in the fridge for up to 4 days. This homemade milk will separate when stored, so shake it again before using.
 
-### 5. Oat milk
+### 5. Avocado chocolate mousse
 [Website](https://www.vitamix.com/us/en_us/recipes/avocado-chocolate-mousse)
+
 #### Ingredients
 
 * 1 avocado, pitted, peeled
@@ -112,7 +113,64 @@
 
 2. Start the blender on its lowest speed, then quickly increase to its highest speed. Blend for 30 to 45 seconds, using the tamper to press ingredients toward the blade. Chill and serve.
 
+### 6. Peanut butter
+https://www.vitamix.com/us/en_us/recipes/peanut-butter
 
+### 7. Thai peanut sauce
+https://lifeisnoyoke.com/thai-peanut-sauce/
 
+### 8. Pineapple orange smoothie
 
+#### Ingredients
 
+- 1.5 cups of filtered water
+- 10 cm celery stalk
+- 6 large pited dates
+- 1 banana
+- 2 oranges, peeled
+- 300g pineapple, peeled
+
+#### Directions
+
+1. Place all ingredients into the Vitamix container in the order listed and secure the lid.
+2. Start the blender on its lowest speed, then quickly increase to its highest speed. Blend for 1 minute
+
+### 9. Nutella
+https://lifeisnoyoke.com/nutella/
+
+### 10. Pancake (try #1)
+https://becomevegetarian.org/recipes/vitamix-pancakes-easiest-breakfast-pancakes/
+
+#### Ingredients
+- 1 cup Oats
+- 1 tbsp Chia seeds
+- 1 banana
+- 1/2 cup oat milk
+
+#### Directions
+1. Add all of the above ingredients in the order mentioned and blend. Start on low and increase to high for about 30 seconds
+2. Heat a pan, add ghee. Turn down the heat to medium low and pour your pancake batter into the pan. When you see a few air bubbles on each pancake, flip them and cook for a minute or so
+
+### 11. Hummus
+https://www.vitamix.com/us/en_us/recipes/hummus
+
+### 12. Dreamy orange smoothie
+https://wholefully.com/orange-smoothie-recipe-creamsicle/
+
+#### Ingredients
+
+- 1 banana
+- 1 orange, peeled
+- 1/2 cup yogurt
+- 1cm vanilla
+- 1 cup of filtered water
+- 1 tablespoon of coconut flakes
+
+#### Directions
+
+1. Place all ingredients into the Vitamix container in the order listed and secure the lid.
+2. Start the blender on its lowest speed, then quickly increase to its highest speed. Blend for 1 minute
+
+## Soups
+
+### 1. Thai soba noodles with prawns
