@@ -171,6 +171,31 @@ https://wholefully.com/orange-smoothie-recipe-creamsicle/
 1. Place all ingredients into the Vitamix container in the order listed and secure the lid.
 2. Start the blender on its lowest speed, then quickly increase to its highest speed. Blend for 1 minute
 
+### 13. Pumpkin soup
+
+
+#### Directions + ingredients
+
+Saute spices in a 2 litre pot
+- 2 teaspoon olive oil
+- brown mustard sees
+- jeera 1/4 teaspoon
+- fennel 1/4 teaspoon
+- 2 cloves
+- 1/2 teaspoon madras curry powder
+
+Saute vegetables for a minute
+- roasted pumpkin
+- 100g parsnip
+- 100g carrot
+- 50g beetroot
+- 500g roasted pumpkin
+
+Add a teaspoon of thyme and oregano mix. Fill the pot to 1.2 litres with filtered water. Bring to the boil. Cover and cook for 15 minutes on medium.
+Wait to cool down.
+Add soup to Vitamix.
+Start the blender on its lowest speed, then quickly increase to its highest speed. Blend for 1 minute
+
 ## Noodles
 
 ### 1. Thai soba noodles with prawns
